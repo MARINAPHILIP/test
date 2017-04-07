@@ -1,3 +1,5 @@
-merin is realluy a bad girl
-i knolw that she is rae;lly a good girl
+merin is really a bad girl
+I know that she is really a good girl.
+  Actually she is a foolish girl;
+and she doesnot even know how to eat.
 
